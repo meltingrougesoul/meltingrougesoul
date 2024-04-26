@@ -1,6 +1,6 @@
 JUN she/her
 
-❤:Castlevania Dracula X Chronicles, Final Fantasy VII,XV, Ensemble Stars and more I forgot 
+❤:Castlevania Dracula X Chronicles (and so many more of the games 💀💀), Final Fantasy VII,XV, Ensemble Stars and more I forgot 
 
 
 i like gackt!!!
