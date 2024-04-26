@@ -1,4 +1,7 @@
-read my rentry if you want to.....
+JUN she/her
+
+❤:Castlevania Dracula X Chronicles, Final Fantasy VII,XV, Ensemble Stars and more I forgot 
+
 
 i like gackt!!!
 
