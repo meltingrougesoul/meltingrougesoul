@@ -1,8 +1,4 @@
-JUN she/her
+jun she/her
 
-❤:Castlevania Dracula X Chronicles (and so many more of the games 💀💀), Final Fantasy VII,XV, Ensemble Stars and more I forgot 
+❤:Castlevania Dracula X Chronicles, LUOCHA, SUNDAY from HSR. FFVII and other things
 
-
-i like gackt!!!
-
-![image](https://github.com/meltingrougesoul/meltingrougesoul/assets/130944946/bc614532-7997-4998-8226-38081d27cdfd)
