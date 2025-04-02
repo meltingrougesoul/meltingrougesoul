@@ -1,1 +1,1 @@
-![](https://64.media.tumblr.com/e2f033bc1db3a72e992ee89c14b66423/tumblr_noerdkSWys1tib9hco1_500.gifv)
+I can recite the alphabet A B C D E F G H I J K L M N O P Q R S T U V W X Y and don't EVEN forget about Z
