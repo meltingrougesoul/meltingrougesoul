@@ -2,7 +2,7 @@ I can recite the alphabet A B C D E F G H I J K L M N O P Q R S T U V W X Y and 
 help me
 i forgot how erlp
 hel0
-
+![image](https://github.com/user-attachments/assets/52a31e3b-abca-4e62-9536-6f3a6a8f3673)
 ![image](https://github.com/user-attachments/assets/9471e5bd-3bc5-4320-bbb3-891d7072cdec)
 ![image](https://github.com/user-attachments/assets/5abbed07-c8f2-4d03-a005-9abe20318d58)
 ![image](https://github.com/user-attachments/assets/f635a43d-85d6-46b2-ada6-2b4e9bb44aeb)
