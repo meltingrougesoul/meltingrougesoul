@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=your-github-username&color=e092bc)
 I can recite the alphabet A B C D E F G H I J K L M N O P Q R S T U V W X Y and don't EVEN forget about Z
 help me
 i forgot how erlp
@@ -10,4 +11,3 @@ hel0
 ![image](https://github.com/user-attachments/assets/08af404d-75d2-427b-a67d-1b7941587a5f)
 ![image](https://github.com/user-attachments/assets/823b61e4-a77b-4b66-b7ec-f5654a7056f6)
 ![image](https://github.com/user-attachments/assets/958fbe72-467d-4926-b530-c6456efd2123)
-![](https://komarev.com/ghpvc/?username=your-github-username)
