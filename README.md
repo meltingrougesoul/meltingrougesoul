@@ -1,4 +1,3 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=e092bc)
 nyanyanayanayaa ahaanayayya
 
 I can recite the alphabet A B C D E F G H I J K L M N O P Q R S T U V W X Y and don't EVEN forget about Z
